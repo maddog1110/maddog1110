@@ -1,7 +1,7 @@
 👋 Hi, I’m @maddog1110  
 👀 I’m interested in web and Android app development, and more!  
 🌱 Currently working on web apps and Android apps.  
-📫 You can reach me at support@madstudio.x10.mx  
+📫 You can reach me at customer-care@zohomail.com
 😄 Pronouns: He/Him  
 ⚡ Fun fact: I love Linux!
 
